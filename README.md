@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NicolleNina
+- 👋 Hello Word! I’m @NicolleNina
 - 👀 I’m interested in unviel...
 😉🤓👩🏼‍💻🕵️🏼‍♀️🚓
 <!---
